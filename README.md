@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Donq3li 
+- 👀 I’m interested in learning how to do m3u links
+- 🌱 I’m currently learning social media management, design,video entire,mix master,record,etc
+- 💞️ I’m looking to collaborate on everything from those that I mention 
+- 📫 How to reach me elezidion08@gmail.com
